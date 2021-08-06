@@ -1,0 +1,1 @@
+# IOT-devices-enclosures-3d-conception-with-solidworks
